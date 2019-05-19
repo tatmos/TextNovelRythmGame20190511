@@ -20,3 +20,6 @@ https://twitter.com/tatmos/status/1127088137987969024
 
 こんな感じ。
 音楽と文字の出るタイミングが同期していて気持ち良いのではないだろうか？
+
+Qiita記事
+https://qiita.com/tatmos/items/38c6bf66f1da85c57e9b
